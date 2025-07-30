@@ -1,1 +1,1 @@
-I am Eun
+We are Eun and Seojoon.
